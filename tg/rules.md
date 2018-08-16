@@ -14,6 +14,5 @@
 2. Сервер [Алексея](https://vk.com/alexsywindows) - установка ос, Windows XP
 3. Сервер [Павла](https://vk.com/w32usr) - чота шаманит
 
-Есть вопросы? Обращайтесь [к нему
-](https://tele.click/geeeforceee), либо [к нему
+Есть вопросы? Обращайтесь [к нему](https://tele.click/geeeforceee), либо [к нему
 ](https://tele.click/w32u_tg)
